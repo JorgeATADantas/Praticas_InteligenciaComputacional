@@ -1,0 +1,1 @@
+# Pratica06_IC
